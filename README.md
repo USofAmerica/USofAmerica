@@ -29,7 +29,7 @@ ${\color{#3d201c}{\textsf they ⭑ he}} \color{#2d2825}{\textsf{　꒱　}} 
 ${\color{#79716f}{\textsf apart}} \color{#56514e}{\textsf{of the}} \color{#5b1512}{\textsf{vhs collection!}} \color{#2d2825}{\textsf{ ﹕ ꔫ}}$
 
 
-　 [WIP](https://linksareunfinished.straw.page/)‎　 [wip](https://linksareunfinished.straw.page/) 　[wip](https://linksareunfinished.straw.page/)
+　 [WIP](https://linksareunfinished.straw.page/)‎　 [WIP](https://linksareunfinished.straw.page/) 　[WIP](https://linksareunfinished.straw.page/)
 
   
 <tr>
@@ -37,13 +37,13 @@ ${\color{#79716f}{\textsf apart}} \color{#56514e}{\textsf{of the}} \color{#5
   <details>
 <summary>$\color{#5b1512}{\textsf{ㅤㅤㅤㅤㅤPTㅤInfoㅤㅤㅤㅤㅤ}}$</summary>
 　　　<br>
-$${\color{#79716f} I'mㅤusuallyㅤofftab, ㅤpleaseㅤwhisperㅤtoㅤinteract.}$$
+$${\color{#79716f} I'mㅤusuallyinpartchat, ㅤpleaseㅤwhisperㅤtoㅤinteract.}$$
 　　<br>
 $${\color{#56514e} C+HㅤisㅤalwaysㅤencouragedㅤunlessㅤI'mㅤonㅤDNI.}$$
     <br>
 $${\color{#79716f} Pleaseㅤdon'tㅤcopyㅤmyㅤskins; ㅤinspoㅤisㅤokay.}$$
 　　<br>
-$${\color{#56514e} Usuallyㅤsittingㅤbyㅤdocks, ㅤlibrary, ㅤorㅤatㅤaㅤregi...}$$
+$${\color{#56514e} Usuallyㅤsittingㅤwithfriends or ㅤnearrosebushes...}$$
     <br>
     
 

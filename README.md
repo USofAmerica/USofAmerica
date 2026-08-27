@@ -29,7 +29,7 @@ ${\color{#3d201c}{\textsf they ⭑ he}} \color{#2d2825}{\textsf{　꒱　}} 
 ${\color{#79716f}{\textsf apart}} \color{#56514e}{\textsf{of the}} \color{#5b1512}{\textsf{vhs collection!}} \color{#2d2825}{\textsf{ ﹕ ꔫ}}$
 
 
-　 [prns.cc](https://kaveh.atabook.org) 　‎✦　 [contact me](https://guns.lol/vhs)
+　 [WIP](https://linksareunfinished.straw.page/)‎　 [wip](https://linksareunfinished.straw.page/) 　[wip](https://linksareunfinished.straw.page/)
 
   
 <tr>
@@ -53,18 +53,3 @@ $${\color{#56514e} Usuallyㅤsittingㅤbyㅤdocks, ㅤlibrary, ㅤorㅤatㅤaㅤ
   </tr>
 
 
-
-<!--
-**USofAmerica/USofAmerica** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->

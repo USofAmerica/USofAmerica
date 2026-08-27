@@ -43,7 +43,7 @@ $${\color{#56514e} C+HㅤisㅤalwaysㅤencouragedㅤunlessㅤI'mㅤonㅤDNI.}$$
     <br>
 $${\color{#79716f} Pleaseㅤdon'tㅤcopyㅤmyㅤskins; ㅤinspoㅤisㅤokay.}$$
 　　<br>
-$${\color{#56514e} Usuallyㅤsittingㅤwithfriends or ㅤnearrosebushes...}$$
+$${\color{#56514e} Usuallyㅤsittingㅤwithfriends / ㅤnearrosebushes...}$$
     <br>
     
 

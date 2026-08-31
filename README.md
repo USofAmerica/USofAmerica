@@ -29,7 +29,7 @@ ${\color{#3d201c}{\textsf they ⭑ he}} \color{#2d2825}{\textsf{　꒱　}} 
 ${\color{#79716f}{\textsf apart}} \color{#56514e}{\textsf{of the}} \color{#5b1512}{\textsf{vhs collection!}} \color{#2d2825}{\textsf{ ﹕ ꔫ}}$
 
 
-　 [guns.lol](https://guns.lol/usofamerica)‎　 [prns.cc](https://pronouns.cc/@usofamerica) 　[WIP](https://linksareunfinished.straw.page/)
+　 [guns.lol](https://guns.lol/usofamerica)‎　 [prns.cc](https://pronouns.cc/@usofamerica) 　[spacehey](https://spacehey.com/cuirassier)
 
   
 <tr>

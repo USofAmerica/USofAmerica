@@ -1,9 +1,9 @@
-<p align="center"><img width="690" src="https://files.catbox.moe/7zxnrl.png" /></p>
+<p align="center"><img width="690" src="https://i.postimg.cc/hGB67W0s/alfred-banner-101.png" /></p>
 
 <p align="center"
 
   
-　 $${\color{#504040} you　must　believe　me　,　it　was　a　horseman　,　a　dead　one.}$$ 　݁𓉸
+　 $${\color{#FFCD35} where　the　hell　do　you　put　the　bayonet　?　!}$$ 　݁໒꒱
  
  
  
@@ -11,7 +11,7 @@
 </p>
 
 
-<p align="center"><img width="450" src="https://files.catbox.moe/2t2fph.png"  align="left" width="450" /></p>
+<p align="center"><img width="320" src="https://i.postimg.cc/nLJgQb1q/stinky-ass-101.jpg"  align="left" width="450" /></p>
 
 
  
@@ -22,14 +22,14 @@
  
  
  
-${\color{#79716f}{\textsf( [:𓄧:] ᴗ͈)}} \color{#4c1311}{\textsf{roach}} \color{#5b1512}{\textsf{or}}  \color{#3d201c}{\textsf{ame/america}}$
+${\color{#FFCD35}{\textsf( [:𓄧:] ᴗ͈)}} \color{#FFCD35}{\textsf{roach}} \color{#f9a10f}{\textsf{or}}  \color{#DF2B0C}{\textsf{ame/america}}$
 <br/>
-${\color{#3d201c}{\textsf they ⭑ he}} \color{#2d2825}{\textsf{　꒱　}} \color{#56514e}{\textsf{it ⭑ neos }}  \color{#5b1512}{\textsf{eng only}}$
+${\color{#ba1515}{\textsf they ⭑ he}} \color{#FFCD35}{\textsf{　꒱　}} \color{#ba1515}{\textsf{it ⭑ neos }}  \color{#9F0B08}{\textsf{eng only}}$
 <br/>
-${\color{#79716f}{\textsf apart}} \color{#56514e}{\textsf{of the}} \color{#5b1512}{\textsf{vhs collection!}} \color{#2d2825}{\textsf{ ﹕ ꔫ}}$
+${\color{#DF2B0C}{\textsf 18}} \color{#f9a10f}{\textsf{10 . 4}} \color{#9F0B08}{\textsf{♡ alfredkinnie}} \color{#f9a10f}{\textsf{ ﹕ ꔫ}}$
 
 
-　 [guns.lol](https://guns.lol/usofamerica)‎　 [prns.cc](https://pronouns.cc/@usofamerica) 　[spacehey](https://spacehey.com/cuirassier)
+　 [guns.lol](https://guns.lol/usofamerica)‎　 [wip](linksareunfinished.straw.page) 　[spacehey](https://spacehey.com/cuirassier)
 
   
 <tr>
@@ -37,13 +37,13 @@ ${\color{#79716f}{\textsf apart}} \color{#56514e}{\textsf{of the}} \color{#5
   <details>
 <summary>$\color{#5b1512}{\textsf{ㅤㅤㅤㅤㅤPTㅤInfoㅤㅤㅤㅤㅤ}}$</summary>
 　　　<br>
-$${\color{#79716f} I'mㅤusuallyinpartchat, ㅤpleaseㅤwhisperㅤtoㅤinteract.}$$
+$${\color{#fffff} I'mㅤusuallyinpartychat, ㅤpleaseㅤwhisperㅤtoㅤinteract.}$$
 　　<br>
-$${\color{#56514e} C+HㅤisㅤalwaysㅤencouragedㅤunlessㅤI'mㅤonㅤDNI.}$$
+$${\color{#FFCD35} C+HㅤisㅤalwaysㅤencouragedㅤunlessㅤI'mㅤonㅤDNI.}$$
     <br>
-$${\color{#79716f} Pleaseㅤdon'tㅤcopyㅤmyㅤskins; ㅤinspoㅤisㅤokay.}$$
+$${\color{#fffff} Pleaseㅤdon'tㅤcopyㅤmyㅤskins; ㅤinspoㅤisㅤokay.}$$
 　　<br>
-$${\color{#56514e} Usuallyㅤsittingㅤwithfriends / ㅤnearrosebushes...}$$
+$${\color{#FFCD35} I'msadlyengonly... ㅤIdon'tminddoublesatall!}$$
     <br>
     
 

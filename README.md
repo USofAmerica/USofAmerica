@@ -29,7 +29,7 @@ ${\color{#ba1515}{\textsf they ⭑ he}} \color{#FFCD35}{\textsf{　꒱　}} 
 ${\color{#DF2B0C}{\textsf 18}} \color{#f9a10f}{\textsf{10 . 4}} \color{#9F0B08}{\textsf{♡ alfredkinnie}} \color{#f9a10f}{\textsf{ ﹕ ꔫ}}$
 
 
-　 [guns.lol](https://guns.lol/usofamerica)‎　 [wip](linksareunfinished.straw.page) 　[spacehey](https://spacehey.com/cuirassier)
+　 [guns.lol](https://guns.lol/usofamerica)‎　 [新book](https://usofamerica.atabook.org/) 　[spacehey](https://spacehey.com/cuirassier)
 
   
 <tr>

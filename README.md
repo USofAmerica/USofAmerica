@@ -1,4 +1,3 @@
-<!--thank you sm dad-->
 
 <div id="header"align="center">
 </p>
@@ -9,59 +8,69 @@
   </thead>
   <tbody>
     <tr>
-      <td><img align="center" width="200px" salt="image" src="https://github.com/user-attachments/assets/0a3e4264-61b2-4213-868d-538fb4b07a65"></td>
+      <td><img align="center"<img width="340" height="412" alt="image" src="https://github.com/user-attachments/assets/5fc568b8-4456-4036-9a49-478551850ac0" /
+"></td>
       <td>
       <p align="center">
-      $${\color{#1c309a}roachㅤ :  }$$
-${\color{#ffdfcc}ameㅤ :ㅤ}$
-      $${\color{#ffdfcc}patriotㅤㅤ}$$
+<img width="543" height="64" alt="image" src="https://github.com/user-attachments/assets/ba6256aa-bdfb-40b9-a636-5d5b4e507841" />
+            <br>
+      $${\color{#f96e3d}Don't  }$$
+${\color{#fdaa3a}considerㅤ}$
+      $${\color{#fee3a8}morality}$$
     <br>
-$${\color{#1c309a}they .  }$$
-$${\color{#ffdfcc} he .}$$
-      $${\color{#ffdfcc} it . }$$
-      $${\color{#ffdfcc} axe }$$
+$${\color{#fffff}as}$$
+$${\color{#fffff}we}$$
+$${\color{#fee3a8}join}$$
+      $${\color{#fdaa3a} in}$$
+      $${\color{#fdaa3a}the}$$
+      $${\color{#f96e3d}dance}$$
     <br>
-$${\color{#1c309a} alfred ㅤFICKTINㅤ .}$$
-　　
-$${\color{#800020}texan. }$$
+$${\color{#983e6b} ◡◡◡◡◡◡◡◡◡}$$
+
 <br>
-$${\color{#1c309a} 19 / adult }$$
-$${\color{#800020} ㅤengㅤ speaker  }$$
+$${\color{#fdaa3a} Alfred }$$
+$${\color{#fee3a8} Fictkin  }$$
+$${\color{#ffffff} // }$$
+$${\color{#fee3a8} ㅤ19yo  }$$
+$${\color{#fdaa3a} Person  }$$
         <br>
 
 <details>
-<summary>$\color{#ffdfcc}{\textsf{ㅤㅤㅤㅤㅤDNI ::ㅤㅤㅤㅤㅤ}}$</summary>
+<summary>$\color{#f96e3d}{\textsf{ㅤㅤㅤㅤㅤ‎ ‎͙͘͡★ Moots⠀N⠀Family ꒱}}$</summary>
     <br>
-   $${\color{#ffdfcc} ★ }$$
-    $${\color{#800020}ㅤpro / darkshippers . }$$
+   $${\color{#fdaa3a} Parents⠀★ }$$
+    $${\color{#fee3a8}ㅤ@UKofGreatBritain⠀@aphFrancis }$$
     <br>
-     $${\color{#ffdfcc} ★ }$$
-     $${\color{#800020} ㅤ nsfw ㅤskins/roleplayers }$$
+     $${\color{#fdaa3a}Brothers ★ }$$
+     $${\color{#fee3a8} ㅤ @PrincipalityofSealand⠀@PearloftheDanube⠀N⠀Fishhew }$$
   <br>
-     $${\color{#ffdfcc} ★ }$$
-    $${\color{#800020}ㅤusuk , ㅤcaname,ㅤ frus , ㅤspamano ㅤshippers   . }$$
+     $${\color{#fdaa3a}Moots ★ }$$
+    $${\color{#fee3a8}ㅤ@aphelizaveta⠀@NyoBelarus⠀@Sillyroy }$$
     <br>
-     $${\color{#ffdfcc} ★ }$$
-    $${\color{#800020}ㅤneonazisㅤ . ㅤmaga }$$
+     $${\color{#fdaa3a} Extended }$$
+    $${\color{#fee3a8}ㅤ@villonousvelvetcakes⠀@Nyr1e }$$
     <br>
-     $${\color{#ffdfcc} ★ }$$
-       $${\color{#800020}ㅤslurs ㅤspammers }$$
+     $${\color{#fdaa3a}Alts ★ }$$
+       $${\color{#fee3a8}ㅤ@meatfred⠀@UEnclave }$$
 
   </details>
+  
+  <img width="300" height="119" alt="image" src="https://64.media.tumblr.com/c21e3e8a6a15cc04bb88c170e0ab095b/10830983c5779d1b-8f/s640x960/39661586b2b553e126440617a9d7f71520d35f56.gifv" />
+
   <details>
-<summary>$\color{#ffdfcc}{\textsf{ㅤㅤㅤㅤㅤIWC ::ㅤㅤㅤㅤㅤ}}$</summary>
+<summary>$\color{#f96e3d}{\textsf{‎͙͘͡★ Linksㅤㅤㅤㅤㅤ}}$</summary>
     <br>
-       $${\color{#ffdfcc} ★ }$$
-    $${\color{#1c309a} almostㅤ everyㅤ ship ,ㅤ espㅤ ifㅤ roleplaying   ,,, }$$
+       $${\color{#f96e3d} ★ }$$
+    $${\color{#fdaa3a} 新book⠀— }$$⠀https://democracy.atabook.org/
     <br>
-       $${\color{#ffdfcc} ★ }$$
-    $${\color{#1c309a}  iㅤ projectㅤ tooㅤ muchㅤ on ㅤalfred . }$$
+       $${\color{#f96e3d} ★ }$$
+    $${\color{#fdaa3a}  Main Strawpage⠀— }$$ https://biteful.straw.page/
     <br>
-       $${\color{#ffdfcc} ★ }$$
-    $${\color{#1c309a} doubles ㅤhvy ㅤiwc . }$$
+       $${\color{#f96e3d} ★ }$$
+    $${\color{#fdaa3a} Second Strawpage⠀— }$$ In Works
     <br>
-       $${\color{#ffdfcc} ★ }$$
-    $${\color{#1c309a} trollㅤ skins . }$$
+       $${\color{#f96e3d} ★ }$$
+    $${\color{#fdaa3a} Pronouns.cc⠀— }$$ https://pronouns.cc/@usofamerica
 
   </details>
 <br>
@@ -71,28 +80,4 @@ $${\color{#800020} ㅤengㅤ speaker  }$$
 </td>
 </table>
 </div>
-
-<br>
-
-<p align="center">⠀
- <a href="https://democracy.atabook.org/"> <img src="https://github.com/user-attachments/assets/3a3a2ad1-fe32-44d3-887a-47fd655e1d4f" alt="sign ata!" width="130"></a>　　　
-<a href="https://biteful.straw.page/"> <img src="https://github.com/user-attachments/assets/986d6b56-4df4-4637-a73e-61e682e91ae5" alt="sign ata!" width="130"></a>　　　
-  <a href="https://meatfred.straw.page/"> <img src="https://github.com/user-attachments/assets/7c8e01d0-1455-4b5c-99d2-7706768df533" alt="sign ata!" width="130"></a> 
-</p>
-<br>
-<p align="center">
-<img src="https://github.com/user-attachments/assets/de88dcbe-d147-46c1-8be8-8fd3602b6aba" width="100%" />
-</p>
-<br>
-<p align="center">
-<img src="https://github.com/user-attachments/assets/f8467079-c42e-431e-9f7a-0af1767483c5" width="50%" />
-</p>
-<br>
-<br>
-<p align="center">
-<a href="https://github.com/meatfred"> <img src="https://github.com/user-attachments/assets/9e212e24-71ce-4e11-a9f9-afffb056cca5" alt="sign ata!" width="130"></a>　　　
-<a href="https://github.com/UEnclave"> <img src="https://github.com/user-attachments/assets/d8d27683-cf9b-4f88-af94-2d2194e852cd" alt="sign ata!" width="130"></a>　　
-  
-</p>
-
 

@@ -25,7 +25,7 @@ $${\color{#fee3a8}join}$$
       $${\color{#fdaa3a}the}$$
       $${\color{#f96e3d}dance}$$
     <br>
-$${\color{#983e6b} ◡◡◡◡◡◡◡◡◡}$$
+$${\color{#983e6b} ◡◡◡◡◡◡◡◡◡◡}$$
 
 <br>
 $${\color{#fdaa3a} Alfred }$$

@@ -8,11 +8,11 @@
   </thead>
   <tbody>
     <tr>
-      <td><img align="center"<img width="340" height="412" alt="image" src="https://github.com/user-attachments/assets/5fc568b8-4456-4036-9a49-478551850ac0" /
+      <td><img align="center"<img width="340" height="412" alt="image" src="https://64.media.tumblr.com/f3491fdbf6ac1342a1e75c70f67c8e65/10830983c5779d1b-57/s1280x1920/3c7105144ef1b9a84e9273e4cee83baf691762f6.pnj" /
 "></td>
       <td>
       <p align="center">
-<img width="543" height="64" alt="image" src="https://github.com/user-attachments/assets/ba6256aa-bdfb-40b9-a636-5d5b4e507841" />
+<img width="543" height="64" alt="image" src="https://64.media.tumblr.com/801a08572c67f2510c1770886aa6ca16/24a1316a9dd0c2cc-ee/s640x960/2d7c50d8c9f7d6787a3f70c614c694eebb7589eb.pnj" />
             <br>
       $${\color{#f96e3d}Don't  }$$
 ${\color{#fdaa3a}considerㅤ}$
